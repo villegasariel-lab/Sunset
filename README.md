@@ -50,4 +50,4 @@ El sorteo se activa una vez vendidas un mínimo de 210 chances.
 
 ---
 
-*Sorteo organizado por @sunsett.ph · 2025*
+*Sorteo organizado por @sunsett.ph · 2026*
